@@ -10,4 +10,5 @@ Some users might miss this step and wonder, "What should I do if I forgot to giv
 
 Where to find the referral code?
 
-It is here:e8dz and you can copy the other code:e8dz3843
+It is here:[e8dz] 
+and you can copy the other code:[e8dz3843]
